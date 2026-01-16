@@ -1,2 +1,2 @@
-# username.github.io
+# rhealin.github.io
 rhea's github page
